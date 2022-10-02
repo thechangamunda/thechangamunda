@@ -5,7 +5,7 @@
 
 Hey there, I am Yuvraj Joshi.
 
-I am from India, looking forward to learn and grow in this domain, my current interest are in web development and cyber security, I am familiar with programming languages like C, Python3, JavaScript, CSS, Html. (in process of adding more as every one of them costs a part of my sanity.)
+I am from India, looking forward to learn and grow in this domain, my current interest are in web development and cyber security, I am familiar with programming languages like C, Python3, JavaScript, CSS, Html. (in process of adding more as each one of them costs a part of my sanity.)
 
 One of my favorite quote is *"There's something about arriving in new cities, wandering empty streets with no destination. I will never lose the love for the arriving, but I'm born to leave.”* ~miyamoto musashi 
 
