@@ -25,7 +25,7 @@ One of my favorite quote is *"There's something about arriving in new cities, wa
 ----
 ### 📲 You can reach me through:
 - Instagram : [_.the.changamunda._](https://www.instagram.com/_.thechangamunda._/)
-- X : [@Yuvrajjoshi2003](https://twitter.com/Yuvrajjoshi2003)
+- X : [@thechangamunda](https://x.com/thechangamunda)
 - Linkdin : [Yuvraj Joshi](https://www.linkedin.com/in/yuvraj-joshi-2a1788222/)
 
 ---
